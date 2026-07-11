@@ -1,5 +1,6 @@
 - 👋 Hi, I’m @KoboboR
-- You can reach me at Kobir@thegalleryofsin.com
+- You can reach me at Kobirobinsone@gmail.com
+- 
 
 
 <!---
